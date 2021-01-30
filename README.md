@@ -1,8 +1,8 @@
 # **Bilgilendirme**
 
-> **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız V12 Davet Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
+> **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız Ünlü Public Sunucularının Kayıt Sistemlerini Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
 
-> [Videoya Gitmek İçin Tıkla](https://youtu.be/CLYiZSElitc) 
+> [Videoya Gitmek İçin Tıkla](https://youtu.be/QyKThdAtawc) 
 
 > [Discord Sunucusuna Katılmak İçin Tıkla](https://discord.gg/axjXvA9cCa)
 
